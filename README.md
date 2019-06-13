@@ -1,2 +1,0 @@
-# instahack-master
-Hack ig
